@@ -8,3 +8,4 @@ PDF:
 - O Brasil em Perigo! (1996) - 8,2 MB: mega.nz/file/ZfQj1Zab#yh_7I8f1j4wAgwob346ZRISDdOMvgC86NsJyElPuYUU
 
 - Um Grande Projeto Nacional (1998) - 123 MB: mega.nz/file/UeQXkDIC#tJJDHLC2-65A4YK1DopQD_WgFr42XJhGXOaj0kHSjX0
+- Brasil colonia de banqueiros:https://digital.bbm.usp.br/handle/bbm/7547
